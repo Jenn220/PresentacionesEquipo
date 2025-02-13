@@ -14,4 +14,5 @@
   2. <a href="https://www.canva.com/design/DAGfAfFpLhI/p34IOJcU3MariUkHCc8eWg/edit?utm_content=DAGfAfFpLhI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton">📊 Presentacion</a>
 </p>
 
-
+### Jennifer Álvarez
+1. [💼 LinkedIn](http://www.linkedin.com/in/jennifer-alvarez-38b204351)
