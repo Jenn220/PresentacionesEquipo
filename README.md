@@ -2,6 +2,8 @@
 ### Frederick Torres
 1. [LinkedIn](https://www.linkedin.com/in/frederick-damian-torres-cando-43a4b9325)
 
+### Adrian Churuchumbi
+1. [LinkedIn](https://www.linkedin.com/in/adrian-churuchumbi-4a952b181/)
 
 
 ### Juan De Almada
@@ -15,10 +17,6 @@
 </p>
 
 
-## Daniela Morocho.
 
-
-**URL presentación** https://www.canva.com/design/DAGfAgLE64E/b9HrxzV3J0KnYSnZlWWJtQ/edit?utm_content=DAGfAgLE64E&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-**URL linkedin** www.linkedin.com/in/daniela-guadalupe-7933a42a8
-
+### Kevin Carvajal
+1. [💼 LinkedIn](https://www.linkedin.com/in/kevin-richard-carvajal-garcia-a87ba5225/).
