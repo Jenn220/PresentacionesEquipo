@@ -16,6 +16,10 @@
   2. <a href="https://www.canva.com/design/DAGfAfFpLhI/p34IOJcU3MariUkHCc8eWg/edit?utm_content=DAGfAfFpLhI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton">📊 Presentacion</a>
 </p>
 
+### Kevin Holguin
+  1. <a href="www.linkedin.com/in/kevin-holguin-3b9577350">💼 LinkedIn</a>
+  2. <a href="https://www.canva.com/design/DAGeFf6EWK0/n0KnGGnPXzgynx8Ypw78Cw/edit?utm_content=DAGeFf6EWK0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton">📊 Presentacion</a>
+
 ### Jennifer Álvarez
 1. [💼 LinkedIn](http://www.linkedin.com/in/jennifer-alvarez-38b204351)
 
