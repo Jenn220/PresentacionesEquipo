@@ -2,6 +2,8 @@
 ### Frederick Torres
 1. [LinkedIn](https://www.linkedin.com/in/frederick-damian-torres-cando-43a4b9325)
 
+### Adrian Churuchumbi
+1. [LinkedIn](https://www.linkedin.com/in/adrian-churuchumbi-4a952b181/)
 
 
 ### Juan De Almada
