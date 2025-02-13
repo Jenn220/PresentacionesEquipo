@@ -32,3 +32,6 @@
 1. [💼 LinkedIn](https://www.linkedin.com/in/kevin-richard-carvajal-garcia-a87ba5225/).
 2. [presentacion](https://gamma.app/docs/Pruebas-Unitarias-en-C-htnxdujvfo27g9q)
 
+### Raul Hidalgo
+1. [💼 LinkedIn](https://www.linkedin.com/in/raul-jesus-77032a283/).
+2. [presentacion]()
