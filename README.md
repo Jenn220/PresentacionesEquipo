@@ -16,7 +16,16 @@
   2. <a href="https://www.canva.com/design/DAGfAfFpLhI/p34IOJcU3MariUkHCc8eWg/edit?utm_content=DAGfAfFpLhI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton">📊 Presentacion</a>
 </p>
 
+### Jennifer Álvarez
+1. [💼 LinkedIn](http://www.linkedin.com/in/jennifer-alvarez-38b204351)
+
+### Daniela Morocho
+
+1. [💼 LinkedIn](www.linkedin.com/in/daniela-guadalupe-7933a42a8)
+2. [💼 Canva](https://www.canva.com/design/DAGfAgLE64E/b9HrxzV3J0KnYSnZlWWJtQ/edit?utm_content=DAGfAgLE64E&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 
 
 ### Kevin Carvajal
 1. [💼 LinkedIn](https://www.linkedin.com/in/kevin-richard-carvajal-garcia-a87ba5225/).
+>>>>>>> 75ff6e1c3c074bfa970cdbb5e81b5d96ad933fbf
