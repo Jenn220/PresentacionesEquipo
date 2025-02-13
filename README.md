@@ -18,3 +18,7 @@
 
 ### Jennifer Álvarez
 1. [💼 LinkedIn](http://www.linkedin.com/in/jennifer-alvarez-38b204351)
+
+
+### Kevin Carvajal
+1. [💼 LinkedIn](https://www.linkedin.com/in/kevin-richard-carvajal-garcia-a87ba5225/).
