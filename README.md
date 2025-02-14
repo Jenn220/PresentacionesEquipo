@@ -34,4 +34,4 @@
 
 ### Raul Hidalgo
 1. [💼 LinkedIn](https://www.linkedin.com/in/raul-jesus-77032a283/).
-2. [presentacion](https://www.canva.com/design/DAGfB123ZAU/TlmhOPuPvR6DdY6jqjJdSQ/edit?locale=en)
+2. [📊Canva](https://www.canva.com/design/DAGfB123ZAU/TlmhOPuPvR6DdY6jqjJdSQ/edit?locale=en)
