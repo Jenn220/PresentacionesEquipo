@@ -4,7 +4,7 @@
 
 ### Adrian Churuchumbi
 1. [LinkedIn](https://www.linkedin.com/in/adrian-churuchumbi-4a952b181/)
-2. 2. [📊Canva](https://www.canva.com/design/DAGfBwVRZXk/ETEoP7cLSyNQf0kyNOQwIA/edit?utm_content=DAGfBwVRZXk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+2. [📊Canva](https://www.canva.com/design/DAGfBwVRZXk/ETEoP7cLSyNQf0kyNOQwIA/edit?utm_content=DAGfBwVRZXk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
 ### Juan De Almada
