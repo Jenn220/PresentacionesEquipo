@@ -23,7 +23,7 @@
 
 ### Jennifer Álvarez
 1. [💼 LinkedIn](http://www.linkedin.com/in/jennifer-alvarez-38b204351)
-2. [📊 Presentacion](https://1drv.ms/p/c/b2cfdca68f83e3b5/EXuJcy_bXkdOuwGXjmU_nKoBKqr9idOKqOx3kaQ2IOKD_A?e=6hLkWs)
+2. [📊 Presentacion](https://1drv.ms/p/c/b2cfdca68f83e3b5/Ea-i9Bp605tOluSrFmzE_EQBYUNNBrj0ZW0J7Cd88K800Q?e=jjCaUt)
 
 ### Daniela Morocho
 
