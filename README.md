@@ -36,3 +36,8 @@
 ### Raul Hidalgo
 1. [💼 LinkedIn](https://www.linkedin.com/in/raul-jesus-77032a283/).
 2. [📊Canva](https://www.canva.com/design/DAGfB123ZAU/TlmhOPuPvR6DdY6jqjJdSQ/edit?locale=en)
+
+### Joselyn Dicao
+1. [💼 LinkedIn](https://www.linkedin.com/in/joselyn-maria-dicao-ramirez-139113351).
+2. [📊Canva](https://www.canva.com/design/DAGfCSQeDQU/zxkCYpjXQDUrRF6XSEOAvw/edit?utm_content=DAGfCSQeDQU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
