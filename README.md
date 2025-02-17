@@ -20,7 +20,7 @@
 2. [📊Canva](https://www.canva.com/design/DAGbw9ReRcA/--PTWSgvfNcbqtRiPVFHhw/edit?utm_content=DAGbw9ReRcA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
    
 ### Kevin Holguin
-1. [💼 LinkedIn](https://www.linkedin.com/in/kevin-holguin-3b9577350)
+1. [💼 LinkedIn](https://www.linkedin.com/in/kevinjordanholguin)
 2. [📊Canva](https://www.canva.com/design/DAGeFf6EWK0/n0KnGGnPXzgynx8Ypw78Cw/edit)
 
 ### Jennifer Álvarez
