@@ -21,7 +21,7 @@
    
 ### Kevin Holguin
 1. [💼 LinkedIn](https://www.linkedin.com/in/kevinjordanholguin)
-2. [📊Canva](https://www.canva.com/design/DAGeFf6EWK0/n0KnGGnPXzgynx8Ypw78Cw/edit)
+2. [📊Canva](https://www.canva.com/design/DAGfZBM2Lcg/u9ABc6PxYc3zILYxBe29kA/edit?utm_content=DAGfZBM2Lcg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 ### Jennifer Álvarez
 1. [💼 LinkedIn](http://www.linkedin.com/in/jennifer-alvarez-38b204351)
