@@ -1,6 +1,4 @@
 ## Presentaciones Equipo
-### Frederick Torres
-1. [LinkedIn](https://www.linkedin.com/in/frederick-damian-torres-cando-43a4b9325)
 
 ### Adrian Churuchumbi
 1. [LinkedIn](https://www.linkedin.com/in/adrian-churuchumbi-4a952b181/)
@@ -17,6 +15,10 @@
   2. <a href="https://www.canva.com/design/DAGfAfFpLhI/p34IOJcU3MariUkHCc8eWg/edit?utm_content=DAGfAfFpLhI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton">📊 Presentacion</a>
 </p>
 
+### Frederick Torres
+1. [LinkedIn](https://www.linkedin.com/in/frederick-damian-torres-cando-43a4b9325)
+2. [📊Canva](https://www.canva.com/design/DAGbw9ReRcA/--PTWSgvfNcbqtRiPVFHhw/edit?utm_content=DAGbw9ReRcA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+   
 ### Kevin Holguin
 1. [💼 LinkedIn](https://www.linkedin.com/in/kevin-holguin-3b9577350)
 2. [📊Canva](https://www.canva.com/design/DAGeFf6EWK0/n0KnGGnPXzgynx8Ypw78Cw/edit)
