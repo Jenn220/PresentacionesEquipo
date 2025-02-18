@@ -46,4 +46,4 @@
 
 ### Bryan Gallegos
 1. [💼 LinkedIn](https://www.linkedin.com/in/bryan-gallegos-064665186/).
-2. [📊Canva](https://www.canva.com/design/DAGfAges5AU/SZ9odqvr8-y-Cx_ZQU8WHw/view?utm_content=DAGfAges5AU&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hca3d1956a6)
+2. [📊Canva](https://www.canva.com/design/DAGfbYgPdi4/nMCsQgv4OH2-4ODdppb68w/view?utm_content=DAGfbYgPdi4&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h1251a44e3f)
